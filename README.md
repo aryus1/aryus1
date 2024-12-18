@@ -1,8 +1,8 @@
-### Oii me chamo Marcelo Guimarães, e você?
+### Olá me chamo Marcelo Guimarães, e você?
 
 
 
 
-- 🌱 Atualmente cursando o terceiro período de sistemas de informação
+- 🌱 Atualmente cursando o quarto período de sistemas de informação
 
 
